@@ -1,4 +1,4 @@
-**stef [11:07 AM]****   
+**stef [11:07 AM]**
 @julien: d'après le témoigagne de mes potes mecs, en fait pas mal de meufs sont pas curieuses et considèrent encore la découverte de leur corps comme sale. Merci l'éducation judéo chrétienne XD (edited)
 
 **varouschka [11:07 AM]**   
